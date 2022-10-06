@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Shaffan
+- 👀 I’m interested on everything. Just joking 🤭.
+- 🌱 I’m currently studying Computer Science at somewhere.
+- 📫 Reach me on anywhere you can.
